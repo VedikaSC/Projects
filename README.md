@@ -1,3 +1,3 @@
 # Projects
-This is a list of my Porjects
+This is a list of my Projects
 Author - Vedika 
